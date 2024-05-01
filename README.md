@@ -1,1 +1,1 @@
-```Hi :), Im NuggetFaticato and im a newbie here, for now i dont think im going to create or add new thing on repostories, anyway i hope im gonna be usefull for someone, have a nice day.. byee :)```
+Hi :), I'm NuggetFaticato and I'm a newbie here. For now, I don't think I'm going to create or add anything new to repositories. Anyway, I hope I'm going to be useful for someone. Have a nice day... bye :)
